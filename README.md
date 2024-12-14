@@ -40,7 +40,7 @@ Experience it here: [Weather-Forecast Live Demo](https://snehachaursia.github.io
 ---
 
 💬 **Got Suggestions or Questions?**  
-Feel free to reach out at ✉️ **your-email@example.com**  
+Feel free to reach out at ✉️ **chaurasiasneha30@gmail.com**  
 
 ---
 
